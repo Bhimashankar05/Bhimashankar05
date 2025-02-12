@@ -1,4 +1,4 @@
-# Hi there👋, I'm [Bhimashankar](https://github.com/Bhimashankar05)!
+# Hi there👋, I'm [Bhimashankar Suksen Patil](https://github.com/Bhimashankar05)!
 
 <hr>
 
